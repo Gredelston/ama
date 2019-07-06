@@ -4,7 +4,7 @@
 
 Have a question for me? Ask it here. 👍
 
-Topics might include software, personal questions, money, work, life, philosophy, favorite quadruped, whatever.
+Topics might include software, hobbies, money, work, life, philosophy, favorite quadruped, whatever.
 
 ### Guidelines
 
